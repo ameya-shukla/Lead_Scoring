@@ -11,7 +11,6 @@ Now, although X Education gets a lot of leads, its lead conversion rate is very 
 <br>
 
 <img src = "https://cdn.upgrad.com/UpGrad/temp/189f213d-fade-4fe4-b506-865f1840a25a/XNote_201901081613670.jpg">
-**Lead Conversion Process : Demonstrated as a funnel**
 
 <br>
 
